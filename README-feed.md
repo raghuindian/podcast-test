@@ -1,4 +1,4 @@
-# The Future in Tech
+# 2025 The Future is NOW !
 
 <img src="https://raybo.org/tfit-feed/images/artwork.jpg" width="250">
 
